@@ -1,4 +1,4 @@
-" to be a star, you must burn . " 
+ " to be a star, you must burn . " 
 
      𝘩𝘢𝘪𝘪 𝘴𝘦𝘷𝘷𝘺 (˶ˆᗜˆ˵)
 
