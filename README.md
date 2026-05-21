@@ -36,7 +36,7 @@
    𓏵 That is all ! thank you for taking your sweet time to get to know me a bit more, I appreaciate your attention ! please sign my atabook and read my strawpage . Thank you, once again !
 
 you are 𝘭𝘰𝘷𝘦𝘥 . ᰔᩚ
-
+(っ˶ ˘ ᵕ˘)ˆᵕ ˆ˶ς)
 
   " 𝘐'𝘮 𝘴𝘤𝘢𝘳𝘦𝘥 𝘵𝘩𝘢𝘵 𝘵𝘩𝘪𝘴 𝘪𝘴 𝘢𝘭𝘭 𝘐'𝘭𝘭 𝘦𝘷𝘦𝘳 𝘣𝘦. "
 ⠀⠀⠀  
@@ -47,7 +47,7 @@ you are 𝘭𝘰𝘷𝘦𝘥 . ᰔᩚ
 
 
      
-06 / 09 / 26 . (๑ᵔ⤙ᵔ๑)
+ֺּׅ𓏽⑅ 06 / 09 / 26 . (๑ᵔ⤙ᵔ๑)
 
 
 
