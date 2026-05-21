@@ -46,10 +46,11 @@ you are 𝘭𝘰𝘷𝘦𝘥 . ᰔᩚ
 
 
 
-
-
+     
+06 / 09 / 26 . (๑ᵔ⤙ᵔ๑)
 
 
 
 
   "̶ ̶I̶ ̶s̶t̶i̶l̶l̶ ̶r̶e̶p̶e̶a̶t̶ ̶t̶h̶e̶ ̶t̶h̶i̶n̶g̶s̶ ̶y̶o̶u̶ ̶s̶a̶i̶d̶ ̶t̶o̶ ̶m̶e̶ ̶i̶n̶ ̶m̶y̶ ̶h̶e̶a̶d̶ ̶.̶ ̶"
+    
