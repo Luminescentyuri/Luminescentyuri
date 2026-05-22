@@ -20,7 +20,7 @@
  
  
  
-   __________________________________________________________________________________________________    <img width="137" height="136" alt="hi   yuri ver_ " src="https://github.com/user-attachments/assets/44f3375b-14ee-43c8-819c-bcf73e29ac4c" />
+   __________________________________________________________________________________________________    <img width="140" height="136" alt="hi   yuri ver_ " src="https://github.com/user-attachments/assets/44f3375b-14ee-43c8-819c-bcf73e29ac4c" />
 
 
  ᡕᠵデᡁ᠊╾━ . 𝘋𝘕𝘐 𝘓𝘐𝘚𝘛  
