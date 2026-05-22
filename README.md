@@ -34,9 +34,12 @@
                    → you act weird ? "( – ⌓ – )             
             → you overly swear . gng you are not tuff (¬`‸´¬)
                     → you disturb me when I have DNI or DNT. like dude? (·•᷄∩•᷅ )
+   
+   
+  <img width="138" height="135" alt="yuri briar from spyxfamily pfp" src="https://github.com/user-attachments/assets/4673ad78-9480-4fca-94e6-3edeedb230c7" />
 
  
-   ♡ 𝘈𝘣𝘰𝘶𝘵 𝘮𝘦 !
+   ♡ 𝘈𝘣𝘰𝘶𝘵 𝘮𝘦 !  
 
   ꨄ I 𝘓𝘖𝘝𝘌 ASTRONOMY >> ⌞ 𝘮𝘺 𝘧𝘢𝘷𝘰𝘳𝘪𝘵𝘦 𝘪𝘴 𝘝𝘦𝘯𝘶𝘴, 𝘣𝘵𝘸 𝘩𝘪 𝘝𝘦𝘯𝘶𝘴 ( @stickersheetz ) ^^ ⌝
   
