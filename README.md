@@ -1,6 +1,6 @@
 
 
-  <img width="535" height="531" alt="_ (1)" src="https://github.com/user-attachments/assets/b10f280a-ee52-4202-bcdd-d72a93e8c28f" />
+                   <img width="535" height="531" alt="_ (1)" src="https://github.com/user-attachments/assets/b10f280a-ee52-4202-bcdd-d72a93e8c28f" />
 
 
 
@@ -117,5 +117,5 @@ you are 𝘭𝘰𝘷𝘦𝘥 . ᰔᩚ
  
  
  
- <img width="535" height="531" alt="Yuri Briar _ spy x family (1)" src="https://github.com/user-attachments/assets/c04f90a1-78c4-4ad5-88af-04ceaa19c4d2" />
+             <img width="535" height="531" alt="Yuri Briar _ spy x family (1)" src="https://github.com/user-attachments/assets/c04f90a1-78c4-4ad5-88af-04ceaa19c4d2" />
     
