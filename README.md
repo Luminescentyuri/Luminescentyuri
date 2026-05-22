@@ -1,3 +1,10 @@
+<img width="736" height="736" alt="Yuri Briar _ spy x family (1)" src="https://github.com/user-attachments/assets/c04f90a1-78c4-4ad5-88af-04ceaa19c4d2" />
+
+
+
+
+
+
 " to be a star, you must burn . " 
                                     𝘩𝘢𝘪𝘪 𝘴𝘦𝘷𝘷𝘺 (˶ˆᗜˆ˵)
 
@@ -57,13 +64,7 @@ you are 𝘭𝘰𝘷𝘦𝘥 . ᰔᩚ
    
    
    I'd come up with 862 date ideas to ensure your happiness, but you're not nerdy enough to understand.
-
-
-  
-  
-  
-  
-  •ᴗ•
+    •ᴗ•
   
   
   
