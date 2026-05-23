@@ -8,15 +8,14 @@
 
 
 " to be a star, you must burn . " 
-                                      𝘩𝘢𝘪𝘪 𝘚𝘵𝘰𝘱𝘱𝘱  (˶ˆᗜˆ˵)
-
+                                 
   
    
    𝘚𝘱𝘦𝘤𝘪𝘢𝘭 𝘈𝘯𝘨𝘦𝘭𝘴 ; 𝘚𝘵𝘰𝘱, 𝘙𝘦𝘯, 𝘚𝘱𝘢𝘥𝘦, 𝘈𝘷𝘦𝘳𝘺, 𝘝𝘢𝘭, 𝘊𝘩𝘢𝘳𝘭𝘪𝘦, 𝘈𝘴𝘩𝘦𝘳, 𝘈𝘪𝘦-𝘤𝘢, 𝘝𝘦𝘯𝘶𝘴, + 𝘢𝘭𝘭 𝘮𝘺 𝘰𝘵𝘩𝘦𝘳 𝘴𝘶𝘱𝘦𝘳𝘣 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 !
 
  
   
-  Heii! here are some info about me, my DNI's, and my interests you might also like.
+  Heii, Yuri here ! here are some info about me and my DNI's.
 
  
  
@@ -59,6 +58,8 @@
    ꨄ I hate gambling . it ruined my family and a sensitive topic for me (¬⤙¬ 
    
    ꨄ I am really kind once you get to know me, just approach me properly (｡>﹏<)
+
+   ꨄ I get attached somewhat really easily,, don't take advantage of that please.
    
    ꨄ sometimes, I make really corny / weird jokes and I'm sorry in advance.. ( · ❛ ֊ ❛)
 
