@@ -42,25 +42,16 @@
 
  
    ♡ 𝘈𝘣𝘰𝘶𝘵 𝘮𝘦 !  
-
-  ꨄ I 𝘓𝘖𝘝𝘌 ASTRONOMY >> ⌞ 𝘮𝘺 𝘧𝘢𝘷𝘰𝘳𝘪𝘵𝘦 𝘪𝘴 𝘝𝘦𝘯𝘶𝘴, 𝘣𝘵𝘸 𝘩𝘪 𝘝𝘦𝘯𝘶𝘴 ( @stickersheetz ) ^^ ⌝
-  
-  ꨄ Everyone knows I love my friends <3
-  
-   ꨄ I am a very heavy Yuri (spy x family ) and Uranus (solarballs) fictkin . . I'm literally Yuri guys      ,, („• ֊ •„)੭ { Literally , I'm Yuri . /gen }
    
+   ꨄ I 𝘓𝘖𝘝𝘌 ASTRONOMY >> ⌞ 𝘮𝘺 𝘧𝘢𝘷𝘰𝘳𝘪𝘵𝘦 𝘪𝘴 𝘝𝘦𝘯𝘶𝘴, 𝘣𝘵𝘸 𝘩𝘪 𝘝𝘦𝘯𝘶𝘴 ( @stickersheetz ) ^^ ⌝
+   ꨄ Everyone knows I love my friends <3
+   ꨄ I am a very heavy Yuri (spy x family )  . . I'm literally Yuri guys      ,, („• ֊ •„)੭ { Literally  , I'm Yuri . /gen }
    ꨄ most of my info is in my strawpage ! at the links ,,
-   
-   ꨄ I like Science ALOT ٩(ˊᗜˋ*)
-   و
+   ꨄ I like Science ALOT ٩(ˊᗜˋ*) و
    ꨄ I like learning, usually !
-   
    ꨄ I hate gambling . it ruined my family and a sensitive topic for me (¬⤙¬ 
-   
    ꨄ I am really kind once you get to know me, just approach me properly (｡>﹏<)
-
    ꨄ I get attached somewhat really easily,, don't take advantage of that please.
-   
    ꨄ sometimes, I make really corny / weird jokes and I'm sorry in advance.. ( · ❛ ֊ ❛)
 
    <img width="176" height="173" alt="_" src="https://github.com/user-attachments/assets/7a961f48-ab0c-4012-8435-012f2124d9ef" />
