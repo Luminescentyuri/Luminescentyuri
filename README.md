@@ -28,14 +28,21 @@
  ᡕᠵデᡁ᠊╾━ . 𝘋𝘕𝘐 𝘓𝘐𝘚𝘛  
   dni if,,
 
-  → you joke about gambling, GENUINELY, seriously, dni . ՞߹ - ߹՞            
-      → you say sexual jokes about me .        
-         → you insult me like alot ?? 「 unless we're friends or it's obviously playful banter . 」       
-      → you're just gonna be cold (¬_¬")      
-           → you're just gonna copy my ponies / designs . 
-                   → you act weird ? "( – ⌓ – )             
-            → you overly swear . gng you are not tuff (¬`‸´¬)
-                    → you disturb me when I have DNI or DNT. like dude? (·•᷄∩•᷅ )
+  → you joke about gambling, GENUINELY, seriously, dni . ՞߹ - ߹՞ 
+  
+  → you say sexual jokes about me .        
+
+  → you insult me like alot ?? 「 unless we're friends or it's obviously playful banter . 」       
+      
+  → you're just gonna be cold (¬_¬")      
+           
+  → you're just gonna copy my ponies / designs . 
+                   
+  → you act weird ? "( – ⌓ – )             
+          
+  → you overly swear . gng you are not tuff (¬`‸´¬)
+                   
+  → you disturb me when I have DNI or DNT. like dude? (·•᷄∩•᷅ )
    
    
   <img width="138" height="135" alt="yuri briar from spyxfamily pfp" src="https://github.com/user-attachments/assets/4673ad78-9480-4fca-94e6-3edeedb230c7" />
