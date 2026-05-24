@@ -54,7 +54,7 @@
    
    ꨄ Everyone knows I love my friends <3
    
-   ꨄ I am a very heavy Yuri (spy x family )  . . I'm literally Yuri guys      ,, („• ֊ •„)੭ { Literally  , I'm Yuri . /gen }
+   ꨄ I am a very heavy Yuri (spy x family ) kin... or yume,,, selflove I guess  . . I'm literally Yuri guys      ,, („• ֊ •„)੭ { Literally  , I'm Yuri . /gen }
    
    ꨄ most of my info is in my strawpage ! at the links ,,
    
@@ -73,7 +73,7 @@
    <img width="176" height="173" alt="_" src="https://github.com/user-attachments/assets/7a961f48-ab0c-4012-8435-012f2124d9ef" />
 
 
-   𓏵 That is all ! thank you for taking your sweet time to get to know me a bit more, I appreaciate your attention ! please sign my atabook and read my strawpage . Thank you, once again !
+   𓏵 That is all ! thank you for taking your sweet time to get to know me a bit more, I appreciate your attention ! please sign my atabook and read my strawpage . Thank you, once again !
 
 you are 𝘭𝘰𝘷𝘦𝘥 . ᰔᩚ
 (っ˶ ˘ ᵕ˘)ˆᵕ ˆ˶ς)
