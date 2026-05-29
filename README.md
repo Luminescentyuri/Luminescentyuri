@@ -66,7 +66,7 @@
    
    ꨄ I am really kind once you get to know me, just approach me properly (｡>﹏<)
    
-   ꨄ I get attached somewhat really easily,, don't take advantage of that please.
+   ꨄ I'm super cool okay trust I warm up somewhat easily if ur kind or approachableee
    
    ꨄ sometimes, I make really corny / weird jokes and I'm sorry in advance.. ( · ❛ ֊ ❛)
 
