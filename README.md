@@ -62,7 +62,7 @@
    
    ꨄ I like learning, usually !
    
-   ꨄ I hate gambling . it ruined my family and a sensitive topic for me (¬⤙¬ )
+   ꨄ I hate gambling .
    
    ꨄ I am really kind once you get to know me, just approach me properly (｡>﹏<)
    
